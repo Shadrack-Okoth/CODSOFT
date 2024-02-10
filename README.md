@@ -1,1 +1,1 @@
-https://shadrack-okoth.github.io/CODSOFT/
+https://shadrack-okoth.github.io/CODSOFT/landing%20page
